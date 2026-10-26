@@ -31,5 +31,6 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I dont w
 > * Other things I like: Cats, MY HUSBANDDSJDKJJKS MUAH MUAH!!!!
 
 
-
+<p align="center">
 ![Boarder](https://i7.glitter-graphics.org/pub/727/727097kjhd9gidla.gif)
+</p>
