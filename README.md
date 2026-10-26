@@ -4,6 +4,6 @@
 <p align="center">
 $${\color{magenta}She/her}$$
 </p>
-<p align="left">
+<p align="right">
 Wip For everythign else :D
 </p>
