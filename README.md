@@ -6,7 +6,7 @@
 <p align="center">
 ${\color{magenta}Saya/Myuna,~~~She/Her~~~}$
 <p align="center">
-***DO NOT COPY OR INSPO!***
+***DO NOT COPY OR INSPO MY PONIES!***
 <p align="center">
 A bit of a freak. Very autistic, I have AuDHD
 <p align="center">
