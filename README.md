@@ -20,11 +20,11 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I dont w
 
 #
 
-> ## ${\color{red}Current~Interests}$
+> ## ${\color{magenta}Current~Interests}$
 > * Overwatch
 > * League Of Legends
 > * Drawing
-> ## ${\color{red}Other~Interests}$
+> ## ${\color{magenta}Other~Interests}$
 > * Shows: Cyberpunk: Edgerunners, Knights of Guinevere, MLP, Arcane <br>+ a lot more but I only wanted to type some notable ones
 > 
 > * Games: Honkai: Star Rail, OW, LoL, VRChat, Roblox, Re4, Re8, Saya No Uta, daganronpa <br> - I'm a pretty casual gamer for the most part so please don't expect me to know everything about everything I play thanks
