@@ -30,5 +30,5 @@ I'm almost always in the 18+ server. If I'm on safe server it's because I dont w
 > * Games: Honkai: Star Rail, OW, LoL, VRChat, Roblox, Re4, Re8, Saya No Uta, daganronpa <br> - I'm a pretty casual gamer for the most part so please don't expect me to know everything about everything I play thanks
 > * Other things I like: Cats, MY HUSBANDDSJDKJJKS MUAH MUAH!!!!
 
-![Boarder](https://i7.glitter-graphics.org/pub/727/727097kjhd9gidla.gif)
+<img src="https://i7.glitter-graphics.org/pub/727/727097kjhd9gidla.gif" width="1000">
 
