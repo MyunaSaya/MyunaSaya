@@ -6,6 +6,8 @@
 <p align="center">
 ${\color{magenta}Saya/Myuna,~~~She/Her~~~}$
 <p align="center">
+***DO NOT COPY OR INSPO!***
+<p align="center">
 A bit of a freak. Very autistic, I have AuDHD
 <p align="center">
 I block people if they annoy me, or make me uncomfy.
