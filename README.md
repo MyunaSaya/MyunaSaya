@@ -18,7 +18,7 @@ Im fine with roleplaying, Just no sexual stuff. I will only add people if I hang
 I'm almost always in the 18+ server. If I'm on safe server it's because I dont want people harassing me. I won't be adding any kids as friends but you're free to talk to me!
 </p>
 
-[Super cool strawpage in the works!!!]()
+[Super cool strawpage in the works!!!](https://sayamyu.straw.page)
 
 
 #
